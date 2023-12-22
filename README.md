@@ -1,1 +1,1 @@
-script kiddie
+Cybersecurity student
