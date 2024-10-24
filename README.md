@@ -1,1 +1,1 @@
-Cybersecurity student
+SOC Analyst
